@@ -1,5 +1,5 @@
 # About me
-Still learning~
+(˙˘˙ ﾐэ)Э
 
 <!--
 **issiki9401/issiki9401** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
